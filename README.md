@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @ardasimpy-py
+- 👀 I'm interested in software
+- 🌱 I am learning java
+- 📫 You can talk to me from my Instagram address
+- 📷 Instagram ardasimpy
+- 💬 Discord Revenge#0001
