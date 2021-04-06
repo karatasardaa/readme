@@ -3,4 +3,4 @@
 - 🌱 I am learning java
 - 📫 You can talk to me from my Instagram address
 - 📷 Instagram ardasimpy
-- 💬 Discord Revenge#0001
+- 💬 Discord Velox#0001
