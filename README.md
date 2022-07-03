@@ -1,6 +1,5 @@
-- 👋 Hi, I’m @ardasimpy-py
+- 👋 Hi, I’m @ardaware
 - 👀 I'm interested in software
 - 🌱 I am learning java
-- 📫 You can talk to me from my Instagram address
-- 📷 Instagram ardasimpy
-- 💬 Discord Velox#0001
+- 📷 Instagram karatasardaa
+- 💬 Discord ard#3696
